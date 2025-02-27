@@ -3,7 +3,7 @@
 
 ----
 
-Telegram:   [@timixtlg](https://t.me/timixtlg)
+Telegram:   [@TimixTLG](https://t.me/timixtlg)
 
 ----
 2008г. по настоящее время.
